@@ -11,4 +11,9 @@
 <br>$\textsf{\color{red}{[男女内心通]，在[身体内]。}}$
 <br>
 <br>$\textsf{\color{red}{[男女身体内内心通]。[男女身体内他心通]。}}$
+<hr>
+<br>$\textsf{\color{red}{正确的做法：}}$
+<br>出现了:杀人犯:[坏附体男鬼A]。
+<br>$\textsf{\color{red}{命令[坏附体男鬼A]的[亲人他心通女B]，冲到那个[坏附体男鬼A]面前，把他杀死！}}$
+<hr>
 </h3>
